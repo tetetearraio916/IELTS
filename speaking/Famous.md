@@ -16,3 +16,7 @@ In my country, actors, comedians, artists, and athletes are celebrities.<br>
 
 The common denominator of famous people is that they are experts in one thing. This is because when you go out into the world, people who can do everything are less likely to be chosen, and people who are experts in one thing are always more talented. For example, Einstein was able to become famous for his special theory of relativity because he focused on one subject, physics, and studied it. Therefore, the common denominator of celebrities is that they are single-minded people.
 
+
+### Do you think people are famous as a result of some real talent or are they famous for some other reasons?
+
+As far as I'm concerned,　The entertainment industry is a world of complete realism.This is because being a celebrity is about being more eye-catching than the average person.
