@@ -25,6 +25,8 @@ There are more places to visit.<br>
 The city of moose jaw is located near Regina.<br>
 There is a large training area for jet planes, and an air show called Canadian Snowbirds, which shows off some very acrobatic moves.<br>
 If you can't see it live, you can watch them on video at the Western Development Museum.<br>
+
+That’s it. Thank you.
   
   
   
