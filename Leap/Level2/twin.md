@@ -1,5 +1,6 @@
-- How many percent of people are twins?(What is the percent of twins?)
+- How many percent of people are twins?(What is the percent of people?)
 - Why don't most people know if they were a twin? 
 - When did doctors discover Vanishing Twin Syndrome?
 - What did the exam somethimes show early in the pregnancy?
-- What part dose it become after the twin dies?
+- What dose dead twins become after he or she dies?
+
