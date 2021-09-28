@@ -25,4 +25,4 @@ For example, a waiter in a top-notch restaurant can memorize each customer's men
 ### Why do some older people want to be waiters in the bug cities?
 
 I thought that the elderly waiters might have wanted to work in a bigger city because they were more experienced and therefore paid more.
-
+The bigger the city, the more people are thriving and the more responsive the management wants to hire. Also, experienced old people want money too, so supply and demand match. Therefore, there are many old people who want to be waiters in big cities.
