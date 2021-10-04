@@ -34,3 +34,6 @@ Yes, there is. For the past two years, I've been studying English almost every d
 ### Do you like studying with the television on?
 
 I don't like it because I can't concentrate.
+
+### What was your favorite high school project?
+I loved my chemistry class. In that class, we were given a printout of a problem set, and we couldn't leave until we could do it. It was very interesting.
