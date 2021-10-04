@@ -22,3 +22,15 @@ I want to be a developer of it services in the future. So from next year, I'm go
 ### What grades do you usually get?
 In my first and second year of college, I didn't study very well and played around, so I got bad grades, but since my third year, I've been studying hard and getting good grades.
 
+### Are you grade-conscious?
+In Japan, I didn't care about my grades because they didn't affect my job hunting, but now that I'm thinking about finding a job overseas, I care a lot.
+
+### How do you feel when you get low grades?
+I don't care much about it. When it's bad, it's because I'm not learning enough.
+
+### Do you have any study habits?
+Yes, there is. For the past two years, I've been studying English almost every day, plus I've been studying web development while working part-time as a web developer.
+
+### Do you like studying with the television on?
+
+I don't like it because I can't concentrate.
