@@ -15,7 +15,7 @@ They can also be a way to contribute to the local community, as they may attract
 In fact, there is a famous festival in my hometown that has been attracting more and more tourists in recent years. 
 In addition, it has led to an increase in the population of my hometown in the last 10 years, which has revitalized the area.
 
-In conclusion, Financially supporting festivals will change people's lives for the better, and also return benefits to governments by making areas more exciting.
+&nbsp; In conclusion, Financially supporting festivals will change people's lives for the better, and also return benefits to governments by making areas more exciting.
 Meanwhile, we should not ignore there are many other things to spend money on besides festivals. 
 By doing so, we can ensure that　it will enrich countries from ancient times to the present and from now to the future.
 
