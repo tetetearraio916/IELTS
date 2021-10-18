@@ -5,4 +5,4 @@ In brief, among the given leisure activities fancied by European adults,the high
 
 &nbsp; Moving the detail, watching tv took up almost a third of how European persons spends on days off in 1985 and this figure was very similar in 1995, at a quater. A significant number of people, 23%, also took holidays eating out in 1985, though the section of people having holidays for thie purpose 10 years later was clearly  lower at apploximately one in ten, which was a small minority excepte for the others. Plus, in 1995, the advent of video games emerged as a new way to take time, and it was the second largest percentage at almost a quater.
 
-&nbsp; 
+&nbsp; Another major point European have lifes on vacation is obvious that it was divided into equilibrium. With the exception of other and eating out, each section :watching tv, playing computer games, talking with family, and talking with friends had similar percentages of 25%, 23%, 22%, and 22% respectively.
