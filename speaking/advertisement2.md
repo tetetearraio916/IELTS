@@ -5,7 +5,7 @@ the expand of children's impact over their parents shopping, the strategies for 
 inclucation of commercialistic values, and so on.
 This is because children comprihensive the disposition of imformation, are in the process of growing the ability to dicide, and tend to　accept what they hear.
 For exapmple, these days, the WHO has examined the relationship between food advertising and obesity.
-Therefore, some some provinces in Canada prohibit advertisements for less than 12 years old children.
+Therefore, some provinces in Canada prohibit advertisements for less than 12 years old children.
 
 
 
