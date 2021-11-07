@@ -10,5 +10,5 @@ Therefore, some provinces in Canada prohibit advertisements for less than 12 yea
 ## What types of media show advertisements the most?
 
 Recentry, there are significant kinds of advertisements. For example, generally, it seems that many people have know informations through the media of television, newspaper, and radio.
-However, as SNS goes mainstream, we are incleasing methods to get news that are internet advertisements including existing ones.
+However, as SNS goes mainstream, we are incleasing methods to get news that are internet advertisements.
 
