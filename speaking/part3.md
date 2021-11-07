@@ -17,7 +17,7 @@ Internet advertising will become more diversified in the future.
 
  As far as I'm conncerned, one of the positive aspects of advertising is that it is an easy way for consumers to obtain information about a product without having to look at it directly.
 On the other hand, depending on consumer's judgment, it can accelerate their desire to buy too much. 
- Also, depending on the content of the advertisement, there is a possibility of instilling bad values in the public, so consumers have to think carefully before making a purchase because of the ease of viewing.
+ Also, depending on contents of the advertisement, there is a possibility of instilling bad values in the public, so consumers have to think carefully before making a purchase because of the ease of viewing.
 
 ## Describe a short term job you want to have in a foreign country
 
